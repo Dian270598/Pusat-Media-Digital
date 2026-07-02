@@ -1,15 +1,10 @@
 # Pusat-Media-Digital
 Website resmi Pusat Media Digital
 Pusat-Media-Digital/
-LOGO
+
 
 Pusat Media Digital
 Solusi Growth Media Sosial
-
-[ Pesan via WhatsApp ]
-[ Lihat Harga ]
-
-━━━━━━━━━━━━━━━━━━━
 
 Layanan Kami
 📈 Followers
